@@ -1,4 +1,4 @@
-### Hi there, I'm Zulfa! 👋
+### Hi there!! 👋
 
 <div align="center">
 	<br>
